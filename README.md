@@ -1,0 +1,2 @@
+# Assotech-Business-Cresterra
+The business freaks will be amazed to know the prices of the office spaces in Assotech Business Cresterra that will surely vary under the budget of common buyers.  The expected price range of the office spaces may start from Rs. 6290 per sq. ft. onwards. Hence, it is high time for all businessmen to buy property in this commercial project and start office or business easily. Also, you can hire office space on the lease or rent a monthly basis. So, the choice is yours! https://www.assotechbusinesscrestera.com/ 
